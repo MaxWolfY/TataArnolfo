@@ -1,6 +1,5 @@
 ### Bem-Vindo a o meu perfil!! 💝
 
-
  - Desenvolvendo algumas coisas.
  - Estou utilizando esse espaço para criar as minhas criações.
 
